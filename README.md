@@ -5,7 +5,7 @@ Ive just started to work on liverys and decided to show up one of my projects th
 
 
 
-**I DO NOT CREDIT MYSELF BUT THIS GUY WHO MADE THE MODEL:  https://zh.gta5-mods.com/vehicles/mercedes-vito-convoi-exeptionnel-els 
+**I DO NOT CREDIT MYSELF BUT THIS GUY WHO MADE THE MODEL**:  https://zh.gta5-mods.com/vehicles/mercedes-vito-convoi-exeptionnel-els 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mrsnaildev&label=Profile%20views&color=0e75b6&style=flat" alt="mrsnaildev" /> </p>
 
