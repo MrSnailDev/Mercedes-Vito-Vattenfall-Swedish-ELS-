@@ -16,7 +16,7 @@ I only use skin,the orginial mod is:  https://zh.gta5-mods.com/vehicles/mercedes
 <a href="https://ibb.co/0qxgJsy"><img src="https://i.ibb.co/XXqhJYx/Screenshot-3.png" alt="Screenshot-3" border="0"></a>
 
 
-Contact me: https://discord.gg/KBxq7g8J7M
+
 
 
 
